@@ -7,3 +7,10 @@
  
  -**********************************
  for simulation files: https://drive.google.com/drive/u/1/folders/1xJadIdAe0_U3yR6CWXPFhDaTYDXFKqya
+
+*******************************************************
+ CAD :
+ https://drive.google.com/drive/u/1/folders/1H4sSgGcrkxloLIpJ-OMXq3Bh1bOzgmKa
+ ******************************************************
+ testing videos :
+ https://drive.google.com/drive/u/1/folders/1tkJ1GHcBETHV8x1-346272IAtD6Ve_GU
